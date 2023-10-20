@@ -1,1 +1,1 @@
-# jugaaru.github.io Olamba
+# jugaaru.github.io
